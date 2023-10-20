@@ -1,7 +1,7 @@
 ### Hi there 👋, I'm Arin Agrawal (AKA Arination)
 
 <img align="right" alt="GIF" src="https://raw.githubusercontent.com/devSouvik/devSouvik/master/gif3.gif" width="400"/>
-
+:heart: Programming | :black_heart: K-pop | :blue_heart: Anime
 
 
 
